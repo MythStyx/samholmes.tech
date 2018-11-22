@@ -1,2 +1,0 @@
-# samholmes.tech
-samholmes.tech
